@@ -2,7 +2,7 @@
 
 #### An Outsider’s Demand for Fiduciary-Epistemic Accountability
 
-![alt text](https://github.com/Peter-Kahl/Reporting-HEPI-to-the-Charity-Commission/blob/main/power_throne.jpg?raw=true)
+![alt text](https://github.com/Peter-Kahl/Reporting-HEPI-to-the-Charity-Commission/blob/main/charity_commission_red_flag.jpg?raw=true)
 
 by Peter Kahl, 11 August 2025
 
